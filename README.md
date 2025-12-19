@@ -15,9 +15,9 @@ and all the love I sometimes don’t know how to put into words.
 
 If you’re reading this,
 it means I chose to show you something deeply personal.
-One day if we're far from eachother know that you'll live forever through me by this website. 
 I've started working on this since March 14th the day after you said yes and I'm hoping this lasts longer that one day I'll be showing our kids what it is to love someone and hold onto to them even when the whole world is against. 
-I hope the day you see this you'll be proud of me and where we've come rather than with tears in our eyes knowing this might be the end.
+I hope the day you see this you'll be proud of me and how far we've come rather than with tears in our eyes knowing this might be the end.
+One day if we're far from eachother know that you'll live forever through me by this website. 
 
 Every update here,
 every photo,
